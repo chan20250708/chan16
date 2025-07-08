@@ -10,4 +10,4 @@
 
 本站为您提供最新的精品影视资源，包括高清电影、电视剧、动漫等。支持各类设备流畅观看，无需下载，随时随地畅享高清娱乐内容。我们致力于为您提供无广告干扰、纯净的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan16 ）</span>
